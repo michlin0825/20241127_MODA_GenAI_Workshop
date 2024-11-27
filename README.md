@@ -1,0 +1,1 @@
+# 20241127_MODA_GenAI_Workshop
